@@ -36,5 +36,5 @@ Call For Speakers is open for everyone and the process is simple and straight-fo
 Next Meeting/Event(s)
 ---------------------
 
-28th March 2020
+28th March 2020 <br />
 Speakers and Location will be posted soon.
